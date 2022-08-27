@@ -1,0 +1,1 @@
+# SQL-QUERIES-DAY-1-TO-7
